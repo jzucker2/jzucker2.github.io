@@ -151,3 +151,14 @@ I've only seen these two of 4 or 5 they have together
 1. La Dolce Vita
 2. 8.5
 
+* David Lean/Alec McGuiness
+
+1. The Bridge on the River Kwai
+2. Lawrence of Arabia
+3. Dr. Zhivago
+4. A passage to india (haven't seen)
+
+* Herzog/Kinski
+
+1. Aguirre: Wrath of God
+2. Fitzcarroldo (haven't seen)
