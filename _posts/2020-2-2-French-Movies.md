@@ -23,6 +23,7 @@ This is a list of French movies I have watched:
 16. A day in the country (renoir)
 17. Zero for conduct (vigo)
 18. Grand illusion (renoir) *
+19. Weekend (godard)
 
 \* denotes a movie seen before fall 2019
 
