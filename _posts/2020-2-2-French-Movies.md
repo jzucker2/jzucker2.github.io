@@ -24,6 +24,8 @@ This is a list of French movies I have watched:
 17. Zero for conduct (vigo)
 18. Grand illusion (renoir) *
 19. Weekend (godard)
+20. Beauty and the beast (cocteau, 1946)
+21. Un flic (a cop aka dirty money) (melville)
 
 \* denotes a movie seen before fall 2019
 
