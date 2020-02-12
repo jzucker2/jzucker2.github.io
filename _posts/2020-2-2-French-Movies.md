@@ -27,6 +27,7 @@ This is a list of French movies I have watched:
 20. Beauty and the beast (cocteau, 1946)
 21. Un flic (a cop aka dirty money) (melville)
 22. Cold Water (assayas) *
+23. Contempt (Godard)
 
 \* denotes a movie seen before fall 2019
 
