@@ -13,5 +13,7 @@ Here's a list of Chinese films I've seen recently:
 6. In the Mood For Love (Wai)
 7. A Better Tomorrow (Woo)
 8. The Killer (Woo)
+9. 77 Heartbreaks * - Bit cheesy, very melodramatic
+10. 
 
 \* Denotes a film seen before fall 2019
