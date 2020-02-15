@@ -14,3 +14,6 @@ Going along with my French movie list, here's an Italian list:
 7. L'Avventura (antonioni)
 8. Rome, Open City (Rossellini) - so incredibly powerful and moving
 9. Trip to Italy (Rossellini)
+10. The conformist (bertolucci)
+11. The battle of algiers (pontecorvo)
+
