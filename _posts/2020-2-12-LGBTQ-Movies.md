@@ -9,6 +9,7 @@ I found [this BFI list](https://www.bfi.org.uk/news-opinion/news-bfi/features/30
 2. The Servant
 3. Tangerine
 4. The birdcage
+5. Harvey Milk
 
 
 Haven't seen:
@@ -26,5 +27,7 @@ Haven't seen:
 11. un chant d'amour
 12. the bitter tears of petra von kant
 13. blue is the warmest colour
+14. 24 hour party people
+15. But i'm a cheerleader
 
 
