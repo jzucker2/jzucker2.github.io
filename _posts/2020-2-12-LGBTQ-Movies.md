@@ -37,6 +37,7 @@ Haven't seen:
 13. blue is the warmest colour
 14. 24 hour party people
 15. But i'm a cheerleader
+16. to wong foo
 
 ### Hitchcock
 
@@ -52,5 +53,6 @@ List below:
 2. North by Northwest - Martin Landau plays the main henchman to James Mason's evil villain and there is absolutely a homosexual undertone to his malevolent character.
 3. The servant - Dirk Bogarde's character uses sexuality as a weapon against the James Fox character
 4. The Maltese Falcon - Cairo is gay. You can tell by the way he strokes his cane in his introductory scene. It's likely why Bogart never is afraid of him. In the book he is openly in a relationship with the boy, Wilmer, played by Elisha Cook.
+5. Un flic (melville) - the informant is transexual and that turns into a minor character moment for Alain Delon
 
 
