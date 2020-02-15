@@ -38,6 +38,7 @@ Haven't seen:
 14. 24 hour party people
 15. But i'm a cheerleader
 16. to wong foo
+17. John Waters (literally everything)
 
 ### Hitchcock
 
