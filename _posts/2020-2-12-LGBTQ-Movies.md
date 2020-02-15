@@ -55,5 +55,6 @@ List below:
 3. The servant - Dirk Bogarde's character uses sexuality as a weapon against the James Fox character
 4. The Maltese Falcon - Cairo is gay. You can tell by the way he strokes his cane in his introductory scene. It's likely why Bogart never is afraid of him. In the book he is openly in a relationship with the boy, Wilmer, played by Elisha Cook.
 5. Un flic (melville) - the informant is transexual and that turns into a minor character moment for Alain Delon
+6. Lawrence of Arabia - infamous scene where he's captured and rape is implied as torture
 
 
